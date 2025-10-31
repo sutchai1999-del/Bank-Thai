@@ -1,1 +1,2 @@
 #1652 THAILAND BK
+&bal
